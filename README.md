@@ -1,1 +1,0 @@
-# aicet21-admit-card
